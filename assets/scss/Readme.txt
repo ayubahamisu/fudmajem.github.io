@@ -1,0 +1,1 @@
+FUDMA Journal of Educational Management (FUDMAJEM) is an annual Journal Published by the Department of Educational Administration and Planning, Federal University Dutsin-Ma, Katsina State, Nigeria. The goal of the Journal is to promote research in the field of Education Management by publishing original and scholarly articles.
